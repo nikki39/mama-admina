@@ -1,2 +1,2 @@
-# mama-admina
-ronan pidaras
+# mama-admin
+# я люблю пукать сука работай
